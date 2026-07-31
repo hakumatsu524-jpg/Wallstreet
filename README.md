@@ -6,4 +6,3 @@ No charts. No fundamentals. Just vibes.
 
 Built for people who think "DYOR" means "Do Your Own Rug."
 
-CWgFxjf7aj8kXbRrqtMHkHpTsqCETUCrRJMvkUKKpump
